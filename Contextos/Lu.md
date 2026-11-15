@@ -1,0 +1,1 @@
+Meu namorado. 23 anos. Namoramos ha 4 anos.
